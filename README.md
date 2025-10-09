@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **Android,Software Engineer,.Net etc**
 
-- 📫 How to reach me **joshankumar6299@gmail.com**
+- 📫 How to reach me **joshankumar95019@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
